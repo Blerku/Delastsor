@@ -1,2 +1,3 @@
 # Delastsor
 zobaczymyjakbombapierdolnie
+pierdolickonfidentowkurwyyy
