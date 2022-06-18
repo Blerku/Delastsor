@@ -1,0 +1,2 @@
+# Delastsor
+zobaczymyjakbombapierdolnie
